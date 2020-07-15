@@ -16,3 +16,5 @@ Thank You to being our valuable customer.
 
 Feel free to write us on http://helpdesk.ultimatekode.com for any kind of support or installation help.
 
+disconnet internet and use this code 
+24a401cd-9ae5-52de-a745-751ab9deg1de
